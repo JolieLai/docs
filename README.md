@@ -1,1 +1,2 @@
-Last Updated Nov 30 2025
+Last Updated Mar 15 2026
+Updated item: Resume & Portfolio
